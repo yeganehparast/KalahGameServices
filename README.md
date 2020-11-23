@@ -1,4 +1,4 @@
-**KALAh!**
+**KALAH!**
 
 **Design**
 
